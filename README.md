@@ -1,8 +1,5 @@
 # 📝 Tarea Semana 11: “Deja de autosabotearte, por favor” 💔🧠
 
-## 🎯 Propósito  
-Reconocer los patrones de miedo, perfeccionismo o inseguridad que me han frenado, para iniciar un proceso de liberación y acción valiente desde el amor propio y la compasión.
-
 ---
 
 ## 💌 Parte 1: Carta desde la compasión
